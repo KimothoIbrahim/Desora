@@ -1,0 +1,2 @@
+# Desora
+for shopkeepers
